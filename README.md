@@ -1,4 +1,6 @@
 ![](https://i.postimg.cc/xdQZhs5P/castiel-graphic-3.png)
+
+![](https://i.postimg.cc/66h3y3yB/castiel-and-dean-stamp.webp) [mw my dean](https://rentry.co/all4castiel) ![](https://i.postimg.cc/3wL7C4Q3/angel-stamp.png) 
 ## ![](https://komarev.com/ghpvc/?username=anqeliccastiel&style=plastic&color=dbd5d5&label=angels) 
 <!--
 **anqeliccastiel/anqeliccastiel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
