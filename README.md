@@ -6,7 +6,7 @@ $${\color{#d6c1b4}❛❛ㅤIㅤwasㅤgood,ㅤIㅤwasㅤreallyㅤgood...ㅤ❜❜
     <img src="https://file.garden/alqzWtqplE9QfqIP/FOR%20GH%201.png" width="200">
 </p>
 
-$${\color{#a47e67}𓏏𓏏ㅤmilesㅤorㅤwilsonㅤ♡ॱ𓏽}$$
+$${\color{#a47e67}𓏏𓏏ㅤmilesㅤorㅤmavisㅤ♡ॱ𓏽}$$
 $${\color{#8d5630}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
 $${\color{#61301a}╰ㅤneilㅤperryㅤsoftㅤsharingㅤselfshipperㅤ﹏}$$
 <!--
