@@ -24,6 +24,22 @@ $${\color{#A46C67}     INTP   ﹑      29/05  ﹐   gemini}$$
 
 $${\color{#A42931}     ♡⏝　 readㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
 
+<img align="left" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%207.png" alt="image" />
+
+$${\color{#BCB1B7}<details>}$$
+
+<summary>Tips for collapsed sections</summary>
+
+```ruby
+   puts "Hello World"
+```
+
+</details>
+
+$${\color{#A46C67}     INTP   ﹑      29/05  ﹐   gemini}$$
+
+$${\color{#A42931}     ♡⏝　 readㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
+
 
 <p align="center">
     <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%209.png">
