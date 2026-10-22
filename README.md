@@ -16,12 +16,6 @@ $${\color{#A42931}╰ㅤdazaiㅤc-linkㅤandㅤchuuyaㅤyumeshipperㅤ﹏}$$
 
 ㅤ
 
-<p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_7757f0717f8efd12fa0491d603c76e78_8c03eb55_2048.jpg" width="200">
-</p>
-
-ㅤ
-
 <img align="right" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%206.png" alt="image" />
 
 $${\color{#BCB1B7}     ftm   ﹒   gay   ﹒   aroflux}$$
@@ -29,12 +23,6 @@ $${\color{#BCB1B7}     ftm   ﹒   gay   ﹒   aroflux}$$
 $${\color{#A46C67}     INTP   ﹑      29/05  ﹐   gemini}$$
 
 $${\color{#A42931}     ♡⏝　 readㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
-
-ㅤ
-
-<p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_7757f0717f8efd12fa0491d603c76e78_8c03eb55_2048.jpg" width="200">
-</p>
 
 ㅤ
 
