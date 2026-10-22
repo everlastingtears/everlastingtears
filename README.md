@@ -24,6 +24,8 @@ $${\color{#A46C67}     INTP   ﹑      29/05  ﹐   gemini}$$
 
 $${\color{#A42931}     ♡⏝　 readㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
 
+
+
 <img align="left" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%207.png" alt="image" />
 
 $${\color{#BCB1B7}     basicㅤdni   ﹒   mostlyㅤofftab   ﹒   w2i}$$
@@ -31,6 +33,8 @@ $${\color{#BCB1B7}     basicㅤdni   ﹒   mostlyㅤofftab   ﹒   w2i}$$
 $${\color{#A46C67}     doㅤnotㅤcopyㅤmyㅤskins   ﹑      LIGHTㅤinspoㅤisㅤok}$$
 
 $${\color{#A42931}     𓉸　　𓈒 　    graphicㅤcredsㅤ=ㅤ@vodyamiutsaㅤonㅤtumblr   　𐑞}$$
+
+
 
 <p align="center">
     <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%209.png">
