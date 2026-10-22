@@ -12,19 +12,12 @@ $${\color{#BCB1B7}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
 $${\color{#A46C67}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
 $${\color{#A42931}╰ㅤdazaiㅤc-linkㅤandㅤchuuyaㅤyumeshipperㅤ﹏}$$
 
-<img align="right" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%206.png" alt="image" />
-test
-<!--
-**anqeliccastiel/anqeliccastiel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img align="left" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%206.png" alt="image" />
+<p align="right">
+<h4>More About Me!</h4>
+> <b>i͟n͟t͟e͟r͟e͟s͟t͟s͟<br></b>$${\color{#E2DECD}test}$$
+</p>
+<img align="left" src="https://picsum.photos/150/100" alt="image" />
+<p>
+> <b>d͟y͟f͟ + d͟n͟i͟<br></b>INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO INFO 
+</p>
