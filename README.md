@@ -15,7 +15,8 @@ $${\color{#A42931}╰ㅤdazaiㅤc-linkㅤandㅤchuuyaㅤyumeshipperㅤ﹏}$$
 <img align="left" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%206.png" alt="image" />
 <p align="right">
 <h4>More About Me!</h4>
-> <b>i͟n͟t͟e͟r͟e͟s͟t͟s͟<br></b>$${\color{#E2DECD}test}$$
+> <b>i͟n͟t͟e͟r͟e͟s͟t͟s͟<br></b> 
+    $${\color{#E2DECD}test}$$
 </p>
 <img align="left" src="https://picsum.photos/150/100" alt="image" />
 <p>
