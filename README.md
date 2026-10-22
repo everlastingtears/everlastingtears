@@ -1,6 +1,7 @@
 <p align="center">
     <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%201.png">
 </p>
+
 $${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤbackㅤthenㅤ❜❜}$$
 
 <p align="center">
