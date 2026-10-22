@@ -1,14 +1,18 @@
-![](https://file.garden/alqzWtqplE9QfqIP/antler%20div.png)
-
-$${\color{#d6c1b4}❛❛ㅤIㅤwasㅤgood,ㅤIㅤwasㅤreallyㅤgood...ㅤ❜❜}$$
+<p align="center">
+    <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%201.png">
+</p>
+$${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤbackㅤthenㅤ❜❜}$$
 
 <p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/FOR%20GH%201.png" width="200">
+    <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%204.png" width="200">
 </p>
 
-$${\color{#a47e67}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
-$${\color{#8d5630}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
-$${\color{#61301a}╰ㅤneilㅤperryㅤsoftㅤsharingㅤselfshipperㅤ﹏}$$
+$${\color{#BCB1B7}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
+$${\color{#A46C67}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
+$${\color{#A42931}╰ㅤdazaiㅤc-linkㅤandㅤchuuyaㅤyumeshipperㅤ﹏}$$
+
+<img align="right" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%206.png" alt="image" />
+test
 <!--
 **anqeliccastiel/anqeliccastiel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
