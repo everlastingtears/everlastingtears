@@ -9,7 +9,7 @@ $${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤback�
 </p>
 
 
-![](https://komarev.com/ghpvc/?everlastingtears&label=subordinates&color=A46C67&style=plastic&base=1000)
+![](https://komarev.com/ghpvc/?everlastingtears&label=subordinates&color=A46C67&style=plastic)
 
 
 $${\color{#BCB1B7}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
