@@ -22,7 +22,7 @@ $${\color{#BCB1B7}     ftm   ﹒   gay   ﹒   aroflux}$$
 
 $${\color{#A46C67}     INTP   ﹑      29/05  ﹐   gemini}$$
 
-$${\color{#A42931}     ♡⏝　 readㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
+$${\color{#A42931}     ♡⏝　 readㅤfluffleㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
 
 ㅤ
 
