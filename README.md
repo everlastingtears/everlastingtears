@@ -8,7 +8,9 @@ $${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤback�
     <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%204.png" width="200">
 </p>
 
-ㅤ
+
+![](https://komarev.com/ghpvc/?everlastingtears&label=subordinates&color=A46C67&style=plastic&base=1000)
+
 
 $${\color{#BCB1B7}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
 $${\color{#A46C67}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
